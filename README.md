@@ -16,6 +16,6 @@
 <img src="https://random-memer.herokuapp.com/" width="512px"/>
 
 ---
-[![](https://visitcount.itsvg.in/api?id=乇爪3尺卂ㄥᗪ (づ｡◕‿‿◕｡)づ&icon=5&color=8)](https://visitcount.itsvg.in)
+
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
