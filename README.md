@@ -1,5 +1,5 @@
 # 💫 About Me:
-• Hi i'm  乇爪3尺卂ㄥᗪ  (づ｡◕‿‿◕｡)づ<br><br>• Student of TADS     (─‿‿─)<br><br>• Just having fun     (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧<br><br>• 20 years old          (ノ・ω・)ノ<br><br>• Brazilian 🇧🇷 <br><br>• focused on python language ★~(◡‿◡✿)<br><br>• trying to be better every day   (≧◡≦)<br>
+• Hi i'm  乇爪3尺卂ㄥᗪ  (づ｡◕‿‿◕｡)づ<br><br>• Student of TADS     (─‿‿─)<br><br>• Just having fun     (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧<br><br>• 20 years old          (ノ・ω・)ノ<br><br>• Brazilian 🇧🇷 <br><br>• trying to be better every day   (≧◡≦)<br>
 
 
 ## 🌐 Socials:
